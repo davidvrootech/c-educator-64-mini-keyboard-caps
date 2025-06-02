@@ -5,3 +5,6 @@ https://www.zx81keyboardadventure.com/2020/05/commodore-educator-64-mini-part-1.
 
 
 They will need to be glued to the rubber buttons
+
+![20250602_120751](https://github.com/user-attachments/assets/689a25c5-d875-4188-8cff-2341df93063e)
+
