@@ -1,0 +1,1 @@
+# c-educator-64-mini-keyboard-caps
