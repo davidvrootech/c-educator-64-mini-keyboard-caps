@@ -8,3 +8,4 @@ They will need to be glued to the rubber buttons
 
 ![20250602_120751](https://github.com/user-attachments/assets/689a25c5-d875-4188-8cff-2341df93063e)
 
+![20250602_193524](https://github.com/user-attachments/assets/409e0d32-e297-4047-9425-8f0392cf0e60)
