@@ -3,6 +3,7 @@
 I have created mini keycaps for the mini keyboard project at the following link:
 https://www.zx81keyboardadventure.com/2020/05/commodore-educator-64-mini-part-1.html
 
+They are 3d printed on a fine detail setting. I printed it black until the last few layers where i switch out with white.
 
 They will need to be glued to the rubber buttons
 
